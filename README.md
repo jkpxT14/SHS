@@ -1,1 +1,1 @@
-# SHS
+Seoul High School
